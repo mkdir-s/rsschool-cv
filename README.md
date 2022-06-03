@@ -1,1 +1,0 @@
-https://mkdir-s.github.io/rsschool-cv/cv
